@@ -1,4 +1,4 @@
-# Most Construction Ltd. — Building Contractors & Developers
+# Most Construction Ltd. — Building Contractors and Developers
 
 ## Approach
 
